@@ -1,2 +1,4 @@
 # Jerome226.github.io
-IN DEVELOPEMENT
+
+
+jerome is very intelligent human
